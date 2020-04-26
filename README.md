@@ -1,18 +1,16 @@
-# learning-journal
 
 Hello, my name is *Zaid Nusair* and this is my view on the **growth mindset** written in *markdown* as an assignment.
 
 # <div align="center"> Growth mindset</div>
 
 
-##### Well lets start with a question; why would you want to have a growth mindset?
+### Well lets start with a question; why would you want to have a growth mindset?
 
 You can come up with a million different reasons for that and this what should be expected, but to actually live with that kind of mindset is harder than it sounds.
 You see, growth fundimentaly means change. and guess what people don't like, *change!* 
 
-##### It makes total sense when you think about it; why would you want to change? 
-
-<div align="center"> <img src="https://p1.pxfuel.com/preview/866/126/442/waldsterben-dead-death-dead-trees-royalty-free-thumbnail.jpg"></div>
+### It makes total sense when you think about it; why would you want to change? 
+<div align="center"><img src="https://p1.pxfuel.com/preview/866/126/442/waldsterben-dead-death-dead-trees-royalty-free-thumbnail.jpg" width="500"></div>
 
 To change is to step out of your comfort zone, even if that zone is literally hell on earth, at least your fimiliar with your hell, why would you dare to step into the unknown?!
 
@@ -23,7 +21,7 @@ And to survive you'll need tools and those tools should be constantly sharpened.
 
 Upon learning something new, Just like deadwood your ~~old self burn~~ and you're ***born again***. 
 
-##### How can you use the growth mindset?
+### How can you use the growth mindset?
 Well, the hardest and most important part is getting started. If you did that all thats left is to keep the momentum going. 
 Always remeber:
 
@@ -34,6 +32,7 @@ Always remeber:
 5. compair yourself to who you where yesterday not who someone else is today.
 
 And even if it overwelms you, once you do it; it will be that much more rewarding.
+<div align="center"><img src="https://encrypted-tbn0.gstatic.com/images?q=tbn%3AANd9GcTOSgHjXwrYUj1vS_hxfHbqr6eis5AvxSnnf-xnxoEDjyjvIwXi&usqp=CAU" width="500"></div>
 
 
 
