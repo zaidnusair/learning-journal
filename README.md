@@ -1,7 +1,7 @@
 
 Hello, my name is *Zaid Nusair* and this is my view on the **growth mindset** written in *markdown* as an assignment.
 
-# <div align="center"> Growth mindset</div>
+# Growth mindset
 
 
 ### Well lets start with a question; why would you want to have a growth mindset?
