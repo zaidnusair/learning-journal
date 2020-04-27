@@ -14,7 +14,7 @@ You see, growth fundimentaly means change. and guess what people don't like, *ch
 
 To change is to step out of your comfort zone, even if that zone is literally hell on earth, at least your fimiliar with your hell, why would you dare to step into the unknown?!
 
-An answer to that might be; "because its life". Accourding to Buddhism; *live **is** suffuring*. This statement changed me, happiness is not the defult state of life nor is easy, and we're all just trying to survive it.
+An answer to that might be; "because its life". Accourding to Buddhism; *life **is** suffuring*. This statement changed me, happiness is not the defult state of life nor is easy, and we're all just trying to survive it.
 And to survive you'll need tools and those tools should be constantly sharpened. Your best tool is your mind, and how do you sharpen that tool? By learning. weather its a new skill or a new language or even a new concept, its all new information that you can use as tools survive. and sometimes you learn something so powerfull that it changes something in you, it can be through life experiences, like the death of a relative or the betrial of a loved one. You're not the same after an event like that, it will pass and you will emerge a new person.
 
 > To learn is to die voluntarily and be born again, in great ways and small.  <div align="right"> -Dr. Jordan B. Peterson.</div>
