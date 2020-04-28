@@ -17,7 +17,7 @@ To change is to step out of your comfort zone, even if that zone is literally he
 An answer to that might be; "because that is life". According to Buddhism; *life **is** suffering*. This statement changed me, happiness is not the default state of life nor is easy, and we're all just trying to survive it.
 And to survive you'll need tools and those tools should be constantly sharpened. Your best tool is your mind, and how can you sharpen that tool? By learning! Weather it is a new skill or a new language or even a new concept, its all new information that you can use as tools of survival. and sometimes you learn something so powerful that it changes something in you, it can be through life experiences, like the death of a relative or the betrayal of a loved one. You're not the same after an event like that, it will pass and you will emerge a new person.
 
-> To learn is to die voluntarily and be born again, in great ways and small.  <div align="right"> -Dr. Jordan B. Peterson.</div>
+> To learn is to die voluntarily and be born again, in great ways and small.                         -Dr. Jordan B. Peterson.
 
 Upon learning something new, Just like deadwood your ~~old self burn~~ and you're ***born again***. 
 
